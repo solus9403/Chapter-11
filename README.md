@@ -1,3 +1,4 @@
 Game URL : https://sky-bus-english-classroom.pbw9403.chatgpt.site
 
-Pronounciation : tbd
+Pronounciation : https://bl-secret-classroom-nov05.pbw9403.chatgpt.site
+
